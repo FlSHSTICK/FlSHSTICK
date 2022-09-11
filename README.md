@@ -2,7 +2,7 @@ Fishstick here.
 
 5+ Years Developing
 
-Creating Isdandaria / Adventura 
+Creator of Fish Swapper And Islandaria (Co-Creator of Guffy)
 
 10M+ Plays
 
