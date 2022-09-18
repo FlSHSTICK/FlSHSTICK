@@ -2,7 +2,7 @@ Fishstick here.
 
 5+ Years Developing
 
-Creator of Fish Swapper And Islandaria (Co-Creator of Guffy)
+Creator of Fish Swapper And Islandaria (Co-Creator of Guffy and ManCake)
 
 10M+ Plays
 
