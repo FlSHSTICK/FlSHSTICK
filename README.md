@@ -2,6 +2,7 @@ Fishstick here.
 
 5+ Years Developing
 
+Owner of Forever Mousepads & TDC
 Creator of Fish Swapper, Guffy, TheirAsisst
 Developer for Islandaria and the Mirror Effect.
 
